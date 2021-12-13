@@ -3,7 +3,9 @@ LOOK-Token for Online-Shopping
 
 Token Adress: 0x95aebfa757558cf28a54897fa34067af7332830c
 
-German Description is on our homepage - here is our english translation:
+German Description is on our homepage - here is our english translation: (Homepage is: https://https://xenonlook.shop/LOOK-Token-Presale)
+
+Take a swiss Token with a real usecase. Token-Holders can pay with this coin in several online-shops and receive exclusive discounts (up to 30%). As a swiss company (Xenonlook.com GmbH) is the issuer of the coin they will start with their shop. They will also use the token to take care of their international trademark (CH, EU and US). As holder of the coin you OWN a part of this Trademark! 1 bil. Coins are 100% of the trademark, means 10 mio are 1% Be part of the family
 
 We launch our LOOK token on 24.12.2021!!! Incl. Airdrop!
 
